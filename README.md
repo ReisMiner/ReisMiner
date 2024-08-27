@@ -10,7 +10,3 @@
 ## Coding Stats
 
 <img src="https://wakatime.com/share/@669382e4-00f2-44a6-ae5c-2681597d2c6c/9118d4fd-9bd5-40ea-882b-fb8f1caf286a.png"/>
-
-## Sus
-
-<img src="https://c.tenor.com/ljBF25IP5QQAAAAC/among-us-dance-dance.gif"/>
